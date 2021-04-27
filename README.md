@@ -1,0 +1,2 @@
+# Patahakan mardkanc generacum
+ 
